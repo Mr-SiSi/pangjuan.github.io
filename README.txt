@@ -1,3 +1,6 @@
+我和瓜瓜的爱情日记，没事别来翻，自己找女朋友之后做一个，别来这吃狗粮
+
+下面是网站demo说明，爱看就看，我反正不爱看
 Strongly Typed by HTML5 UP
 html5up.net | @ajlkn
 Free for personal and commercial use under the CCA 3.0 license (html5up.net/license)
